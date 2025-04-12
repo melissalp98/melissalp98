@@ -3,6 +3,7 @@
 - 🌱 Sou gaúcha, tenho 26 anos
 - 💞️ Sou casada a 5 anos
 - 📫 Meu e-mail é melissalopes0898@gmail.com
+- 🧷 Neste [link](https://bio.site/melissalps98) você encontra todos os meus demais links
 
 ![20250125_155402~2](https://github.com/user-attachments/assets/12c411f6-7391-465a-a2f9-12d43bd797bf)
 
